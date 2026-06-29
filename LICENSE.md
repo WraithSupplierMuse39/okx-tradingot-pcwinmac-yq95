@@ -1,4 +1,4 @@
-# 
+# VIP okx trading bot modelos for Mac OS | Premium okx trading bot modelos for PC Windows. Featuring análise de momento and pools de liquidez DEX — optimized for maximum performance.
 
 
 
